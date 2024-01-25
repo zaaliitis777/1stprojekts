@@ -1,0 +1,2 @@
+# 1stprojekts
+Mācību projekts
